@@ -1,1 +1,1 @@
-# My AI Journey Portfolio
+# My Journey Portfolio
